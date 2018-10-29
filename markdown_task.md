@@ -1,6 +1,6 @@
 ## IRELANDS RUGGED COAST YEILDS 
 
-# Priceless Relics of the Spanish Armada#
+# Priceless Relics of the Spanish Armada
 
 ### *by ROBERT STENUIT*
 
